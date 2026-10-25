@@ -1,0 +1,1 @@
+# aft-ai-school-challenge
